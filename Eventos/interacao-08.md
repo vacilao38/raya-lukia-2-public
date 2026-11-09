@@ -1,0 +1,13 @@
+# Bianca e Charlotte entre histórias e rumores
+
+*Interação registrada em 30/10/2026.*
+
+Com a biblioteca cheia, Charlotte escreve no gramado uma versão cômica do incidente no zoológico. Bianca se aproxima enquanto cuida de sua vassoura.
+
+Charlotte a reconhece como a menina que virou gato. Bianca nega a princípio, mas continua a conversa e pergunta sobre a história. Charlotte quer mostrá-la a Raize, de quem recebe dicas de escrita, e deixa escapar sua atração pelo professor.
+
+Bianca lê o texto, ri de uma passagem e comenta que algumas falas estão confusas. Mesmo assim, incentiva Charlotte, que agradece. As duas descobrem que são colegas da mesma turma.
+
+Bianca conta sua versão do livro e das transformações. O assunto passa às bruxas e à Noite Azul. Ela recorda histórias de sua mãe sobre bruxas que amaldiçoavam vilas com palavras. Charlotte se assusta e depois diz que estava testando a colega; Bianca acompanha a brincadeira.
+
+O sinal encerra o intervalo. Bianca chama a vassoura, que vem lentamente até sua mão, e as duas seguem para a aula.
